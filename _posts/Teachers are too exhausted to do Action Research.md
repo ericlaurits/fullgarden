@@ -1,0 +1,8 @@
+# Teachers are too exhausted to do [[Action Research]]
+> the nature of class teachers’ working conditions is excluding of all other activities, particularly an activity as demanding as research. It seems pertinent to ask why teachers were ever adopted as researchers (see Lawn, 1989). Research is another level of work requiring its own time, training, creative energy and commitment, and understandably, most teachers are too fatigued to contemplate it.
+> <cite>[[Hancock 1997]]</cite> | [Page 6](x-devonthink-item://2A8D1F3C-1C1C-4FF4-8F51-674BC9BD4E64?page=5)
+
+I observe this daily in the schools, however, I also tend to notice a lot of misdirected energy. I don't have research on it, but my current thinking is that much of that is driven by social media influence of picture perfect classrooms, [[Teachers Pay Teachers]], and the sense of nurturing that I see in many teachers. A secondary tenant off of this could possibly be that, as Hancock suggests, the scope of the job is so large. It is truly all encompassing. [[@Lois Groth|Lois]] has mentioned this on occasion as well. It may just be that teachers (particularly young teachers) are all consumed by this job and there's a desire to make it "look nice" just for themselves, etc. There is still so much focus on aesthetics during the day (including both interior design as well as, especially during the pandemic, font choice, slide colors, etc.) Unless these ideas are based in research and done with really specific intention, they are wasteful of a teacher's precious time.
+
+Time might be better spent on getting systems and procedures efficient, data analysis and input formats or anything that truly pays dividends for their craft and the benefit of the students.
+

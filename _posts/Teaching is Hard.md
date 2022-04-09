@@ -1,0 +1,3 @@
+> Teaching is regarded as a demanding profession (Chang, 2009; Schaefer, Long, & Clandinin, 2012; Vandenberghe & Huberman, 1999). Specifically, the transition from education to the world of work seems to be more challenging for teach- ers than in other professions (Tynjälä & Heikkinen, 2011). Empirical studies of beginning teachers often follow two research strands, one focusing on the emotional exhaustion and stress of beginning teachers (Chang, 2009) and the other focusing on teachers’ beliefs (Skott, 2015).
+
+This is a sample note refractor about teaching being hard. I could mention [[@Lois Groth|Lois]] here also

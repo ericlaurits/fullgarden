@@ -1,0 +1,2 @@
+From [[@Lois Groth]] Have you read Johnston’s Opening Minds? Agency 
+Another thing for you to delve into is SDT - self-determined learning theory. Really fits with your philosophy and helps you give it a name. I will find a good intro article to send you

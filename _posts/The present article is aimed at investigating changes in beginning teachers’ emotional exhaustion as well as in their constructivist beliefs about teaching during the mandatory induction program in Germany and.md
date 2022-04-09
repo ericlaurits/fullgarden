@@ -1,0 +1,1 @@
+# > The present article is aimed at investigating changes in beginning teachers’ emotional exhaustion as well as in their constructivist beliefs about teaching during the mandatory induction program in Germany and

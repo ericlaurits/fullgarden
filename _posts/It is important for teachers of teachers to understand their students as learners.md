@@ -1,0 +1,12 @@
+# It is important for teachers of teachers to understand their students as learners
+> understanding teacher candidates as learners is an essential part of the job... use knowledge of teacher candidates’ espoused motivations as a basis for analyzing and critiquing practice... an espoused motivation can be compared with the motivation as a teacher candidate enacts it. Discrepancies can be noted, thereby provoking a need for teacher candidates to adapt and reconcile their espoused and enacted motivations
+> <cite>[[Rutten & Badiali 2020]]</cite> | [Page 7](highlights://Rutten%20&%20Badiali%202020#page=7)
+
+Just as a teacher would in a traditional classroom, professors must understand their students as learners in the collegiate and pre-service environment. When there's a true understanding of the teacher's motivations behind wanting to enter the teaching profession, the professor then has an opportunity to help the pre-service teacher align their choices and procedures to keep them rooted in their motivations, their why. It also, possibly more importantly, could help the professor identify blind spots or ease the teacher into some of the realities of teaching so that there might be a greater appreciation for the craft as a whole and less opportunity for the teacher to leave because "teaching wasn't whet they thought it was going to be"
+
+There isn't really any getting around that the craft of teaching is difficult and not regarded as highly as it should be. The scope of the profession is too big, and, if I might make an analogy to baseball, much like a hitter at the plate who, if he is successful 30% of the time is considered a huge success, teacher's need to understand what success and incredible teaching looks like. Possibly they are creating their own measures for success, possibly redefining what a successful outcome looks like, both in their heart and also on paper. That is one of very few paths forward that I see for keeping more teachers in the profession and the excitement and desire to grow (possibly in conjunction through the use of [[Action Research|AR]]) high on teachers' agenda.
+
+### See Also:
+```dataview
+list from [[It is important for teachers of teachers to understand their students as learners]]
+```
